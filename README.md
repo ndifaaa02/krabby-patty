@@ -1,1 +1,0 @@
-# krabby-patty
